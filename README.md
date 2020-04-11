@@ -1,2 +1,2 @@
 # myclient
-aa+ff+dd+ww
+[aib?afh?o?aai]
